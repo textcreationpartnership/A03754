@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-LVCRECIA-ROMANA¶Jmprinted at London in Paules Churchyarde, at the signe of the Lucrece, by Thomas PuThe Arbor of Amitie, wherin is comprised pleasant Poëms and pretie Poesies, set foorth by Thomas How
+LVCRECIA-ROMANA¶Jmprinted at London in Paules Churchyarde, at the signe of the Lucrece, by Thomas Pu
 1. ¶To the ryght Noble and most vertuous Lady, the Lady Anne Talbot, Thomas Howell wysheth long lyfe, with encrease of honor.
 
 1. Another to the same his honorable and very good Ladie.
